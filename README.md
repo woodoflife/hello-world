@@ -1,2 +1,2 @@
 # hello-world
-A website that shows my work as a furniture maker/restorer and my passion for 'education for sustainable development' (ESD) workshops with schools
+My name is Tom Roche. I am a furniture-maker and restorer. I also have a passion for education for sustainable development (ESD) 
